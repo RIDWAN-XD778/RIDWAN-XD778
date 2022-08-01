@@ -1,10 +1,5 @@
-- 👋 Hi, I’m @RIDWAN-XD778
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-RIDWAN-XD778/RIDWAN-XD778 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- SELAMAT DATANG DI GITHUB GW ANJJ👌
+- SCRIPT FREE+NEW HASIL CEK SENDIRI😑
+- JANGAN LUPA KASIH BINTANG NYA YAK BIAR GW SEMANGAT 🔥🌟
+- SETIAP SCRIPT YANG GW UP ITU FILE GK PERINTAH 
+- KONTAK GW:083862287464 FACEBOK GW:RIDWAN GANS 
